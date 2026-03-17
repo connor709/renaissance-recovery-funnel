@@ -1,1 +1,244 @@
-‣敒慮獩慳据⁥敒潣敶祲钀䔠慭汩丠牵畴敲匠煥敵据獥ਊ敓摮牥爠捥浯敭摮瑡潩㩮䴠祡⁡⹒‬摁業獳潩獮匠数楣污獩ੴ桐湯⁥湩映潯整㩲⠠㘸⤶㌠〳㤭㐴ਹ⌊‣佈⁔䕌䑁钀鲀牃獩獩琠⁯潃浭瑩敭瑮胢ઝ⌊⌣䔠慭汩ㄠ⠠浉敭楤瑡⥥匊扵敪瑣䄠›潙牵挠湯楦敤瑮慩⁬獡敳獳敭瑮爠獥汵獴匊扵敪瑣䈠›⁁汣慥Ⱳ瀠楲慶整渠硥⁴瑳灥ਊ楈笠晻物瑳湟浡絥ⱽਊ桔湡⁫潹⁵潦⁲潣灭敬楴杮琠敨挠湯楦敤瑮慩⁬獡敳獳敭瑮‮慂敳⁤湯礠畯⁲敲灳湯敳ⱳ愠瀠楲慶整挠污⁬獩琠敨戠獥⁴敮瑸猠整⁰潴挠慬楲祦琠敨猠晡獥⁴敬敶⁬景挠牡⁥湡⁤楴敭楬敮ਮ倊楲慭祲䌠䅔›慃汬⠠㘸⤶㌠〳㤭㐴ਹ钀䴠祡⁡⹒䄊浤獩楳湯⁳灓捥慩楬瑳‬敒慮獩慳据⁥敒潣敶祲⠊㘸⤶㌠〳㤭㐴ਹ潃普摩湥楴污愠浤獩楳湯⹳䤠摮癩摩慵⁬敲畳瑬⁳慭⁹慶祲ਮ湕畳獢牣扩㩥嬠楬歮੝⌊⌣䔠慭汩㈠⠠‴潨牵⁳慬整⥲匊扵敪瑣䄠›桗瑡栠灡数獮愠瑦牥礠畯挠污੬畓橢捥⁴㩂䄠挠污⁭楦獲⁴瑳灥ਊ楈笠晻物瑳湟浡絥ⱽਊ晉礠畯挠污⁬潴慤ⱹ眠馀汬氠獩整Ɱ挠慬楲祦漠瑰潩獮⠠敤潴ⱸ爠獥摩湥楴污‬畯灴瑡敩瑮Ⱙ愠摮漠瑵楬敮渠硥⁴瑳灥钀潮瀠敲獳牵⹥ਊ牐浩牡⁹呃㩁䌠污⁬㠨㘶 ㌳ⴰ㐹㤴ਊ胢ₔ慍慹删ਮ摁業獳潩獮匠数楣污獩ⱴ删湥楡獳湡散删捥癯牥੹㠨㘶 ㌳ⴰ㐹㤴唊獮扵捳楲敢›汛湩嵫ਊ⌣‣浅楡⁬″䐨祡㈠਩畓橢捥⁴㩁䌠獯⁴湡⁤湩畳慲据⁥汣牡瑩੹畓橢捥⁴㩂倠慲瑣捩污搠瑥楡獬‬牰癩瑡汥⁹慨摮敬੤䠊⁩筻楦獲彴慮敭絽ਬ圊馀汬瘠牥晩⁹湩畳慲据⁥桷牥⁥潰獳扩敬愠摮攠灸慬湩瀠楲慶整瀭祡漠瑰潩獮挠敬牡祬愠摮搠獩牣敥汴⹹ਊ牐浩牡⁹呃㩁䌠污⁬㠨㘶 ㌳ⴰ㐹㤴ਊ胢ₔ慍慹删ਮ摁業獳潩獮匠数楣污獩ⱴ删湥楡獳湡散删捥癯牥੹㠨㘶 ㌳ⴰ㐹㤴唊獮扵捳楲敢›汛湩嵫ਊ⌣‣浅楡⁬‴䐨祡㐠਩畓橢捥⁴㩁圠慨⁴牴慥浴湥⁴慣⁮敦汥氠歩੥畓橢捥⁴㩂䄠朠極敤Ɽ猠灵潰瑲癩⁥牰捯獥ੳ䠊⁩筻楦獲彴慮敭絽ਬ䴊湡⁹数灯敬映敥⁬湵散瑲楡⁮扡畯⁴牴慥浴湥⹴䄠瀠楲慶整挠污⁬慣⁮汣牡晩⁹桷瑡琠⁯硥数瑣愠摮栠睯眠⁥畳灰牯⁴敲潣敶祲ਮ倊楲慭祲䌠䅔›慃汬⠠㘸⤶㌠〳㤭㐴ਹ钀䴠祡⁡⹒䄊浤獩楳湯⁳灓捥慩楬瑳‬敒慮獩慳据⁥敒潣敶祲⠊㘸⤶㌠〳㤭㐴ਹ湕畳獢牣扩㩥嬠楬歮੝⌊⌣䔠慭汩㔠⠠慄⁹⤷匊扵敪瑣䄠›敗胢犙⁥敨敲眠敨⁮潹馀敲爠慥祤匊扵敪瑣䈠›潙牵瀠楲慶整氠湩⁥獩漠数੮䠊⁩筻楦獲彴慮敭絽ਬ䤊⁦潹馀敲渠瑯爠慥祤琠摯祡‬桴瑡胢玙漠慫⹹圠馀汬戠⁥敨敲眠敨⁮桴⁥楴敭椠⁳楲桧⹴ਊ牐浩牡⁹呃㩁䌠污⁬㠨㘶 ㌳ⴰ㐹㤴ਊ胢ₔ慍慹删ਮ摁業獳潩獮匠数楣污獩ⱴ删湥楡獳湡散删捥癯牥੹㠨㘶 ㌳ⴰ㐹㤴唊獮扵捳楲敢›汛湩嵫ਊ⌣圠剁⁍䕌䑁钀鲀敒敳牡档琠⁯敒摡湩獥鶀ਊ⌣‣浅楡⁬‱䤨浭摥慩整਩畓橢捥⁴㩁夠畯⁲敲畳瑬⁳‫敮瑸猠整獰匊扵敪瑣䈠›潙牵挠湯楦敤瑮慩⁬畧摩⁥獩栠牥੥䠊⁩筻楦獲彴慮敭絽ਬ䠊牥馀⁳潹牵挠湯楦敤瑮慩⁬畧摩⁥湡⁤⁡桳牯⁴癯牥楶睥漠⁦桷瑡礠畯⁲敲畳瑬⁳敭湡‮敗瀠潲楶敤挠浯慰獳潩慮整‬癥摩湥散戭獡摥挠牡⁥慴汩牯摥琠⁯慥档椠摮癩摩慵⹬ਊ牐浩牡⁹呃㩁匠档摥汵⁥⁡牐癩瑡⁥獁敳獳敭瑮䌠污੬敓潣摮牡⁹呃㩁䌠污⁬㠨㘶 ㌳ⴰ㐹㤴ਊ胢ₔ慍慹删ਮ摁業獳潩獮匠数楣污獩ⱴ删湥楡獳湡散删捥癯牥੹㠨㘶 ㌳ⴰ㐹㤴唊獮扵捳楲敢›汛湩嵫ਊ⌣‣浅楡⁬′䐨祡㈠਩畓橢捥⁴㩁圠慨⁴慭敫⁳敒慮獩慳据⁥敒潣敶祲搠晩敦敲瑮匊扵敪瑣䈠›⁁慣浬‬畳灰牯楴敶攠癮物湯敭瑮ਊ楈笠晻物瑳湟浡絥ⱽਊ畏⁲灡牰慯档挠浯楢敮⁳癥摩湥散戭獡摥琠敲瑡敭瑮眠瑩⁨⁡畳灰牯楴敶‬潣灭獡楳湯瑡⁥湥楶潲浮湥⹴圠馀汬栠汥⁰潹⁵湵敤獲慴摮琠敨爠杩瑨氠癥汥漠⁦慣敲ਮ倊楲慭祲䌠䅔›捓敨畤敬愠倠楲慶整䄠獳獥浳湥⁴慃汬ਊ胢ₔ慍慹删ਮ摁業獳潩獮匠数楣污獩ⱴ删湥楡獳湡散删捥癯牥੹㠨㘶 ㌳ⴰ㐹㤴唊獮扵捳楲敢›汛湩嵫ਊ⌣‣浅楡⁬″䐨祡㐠਩畓橢捥⁴㩁䄠琠灹捩污攠灸牥敩据ⱥ猠整⁰祢猠整ੰ畓橢捥⁴㩂圠慨⁴潴攠灸捥ੴ䠊⁩筻楦獲彴慮敭絽ਬ䘊潲⁭潣普摩湥楴污椠瑮歡⁥潴漠杮楯杮挠牡⁥汰湡楮杮‬敷映捯獵漠⁮汣牡瑩⁹湡⁤畳灰牯⁴瑡攠敶祲猠整⹰ਊ牐浩牡⁹呃㩁匠档摥汵⁥⁡牐癩瑡⁥獁敳獳敭瑮䌠污੬钀䴠祡⁡⹒䄊浤獩楳湯⁳灓捥慩楬瑳‬敒慮獩慳据⁥敒潣敶祲⠊㘸⤶㌠〳㤭㐴ਹ湕畳獢牣扩㩥嬠楬歮੝⌊⌣䔠慭汩㐠⠠慄⁹⤷匊扵敪瑣䄠›湉敶瑳敭瑮愠摮椠獮牵湡散匊扵敪瑣䈠›汃慥⁲湩潦浲瑡潩Ɱ渠⁯牰獥畳敲ਊ楈笠晻物瑳湟浡絥ⱽਊ敗胢沙⁬敶楲祦椠獮牵湡散愠摮眠污⁫桴潲杵⁨灯楴湯⁳湩愠猠浩汰ⱥ瀠楲慶整挠污⹬ਊ牐浩牡⁹呃㩁匠档摥汵⁥⁡牐癩瑡⁥獁敳獳敭瑮䌠污੬敓潣摮牡⁹呃㩁䌠污⁬㠨㘶 ㌳ⴰ㐹㤴ਊ胢ₔ慍慹删ਮ摁業獳潩獮匠数楣污獩ⱴ删湥楡獳湡散删捥癯牥੹㠨㘶 ㌳ⴰ㐹㤴唊獮扵捳楲敢›汛湩嵫ਊ⌣‣浅楡⁬‵䐨祡ㄠ⤰匊扵敪瑣䄠›睔⁯楳灭敬渠硥⁴瑳灥ੳ畓橢捥⁴㩂䌠污⁬牯爠灥祬胢禔畯⁲档楯散ਊ楈笠晻物瑳湟浡絥ⱽਊ晉礠畯胢犙⁥敲摡ⱹ挠污⁬㠨㘶 ㌳ⴰ㐹㤴漠⁲敲汰⁹楷桴愠琠浩⁥潦⁲⁡潣普摩湥楴污挠污⹬ਊ胢ₔ慍慹删ਮ摁業獳潩獮匠数楣污獩ⱴ删湥楡獳湡散删捥癯牥੹㠨㘶 ㌳ⴰ㐹㤴唊獮扵捳楲敢›汛湩嵫ਊ⌣䌠䱏⁄䕌䑁钀鲀摅捵瑡潩⁮潴䔠杮条浥湥鶀ਊ⌣‣浅楡⁬‱䤨浭摥慩整਩畓橢捥⁴㩁夠畯⁲潣普摩湥楴污朠極敤匊扵敪瑣䈠›⁁慣浬映物瑳猠整ੰ䠊⁩筻楦獲彴慮敭絽ਬ䠊牥馀⁳潹牵挠湯楦敤瑮慩⁬畧摩⁥畯汴湩湩⁧牴慥浴湥⁴灯楴湯⁳湩愠挠敬牡‬楳灭敬眠祡ਮ倊楲慭祲䌠䅔›潄湷潬摡琠敨䜠極敤匊捥湯慤祲䌠䅔›慃汬⠠㘸⤶㌠〳㤭㐴ਹ钀䴠祡⁡⹒䄊浤獩楳湯⁳灓捥慩楬瑳‬敒慮獩慳据⁥敒潣敶祲⠊㘸⤶㌠〳㤭㐴ਹ湕畳獢牣扩㩥嬠楬歮੝⌊⌣䔠慭汩㈠⠠慄⁹⤳匊扵敪瑣䄠›潈⁷潴攠慶畬瑡⁥牴慥浴湥⁴灯楴湯ੳ畓橢捥⁴㩂儠敵瑳潩獮琠⁯獡⁫敢潦敲礠畯搠捥摩੥䠊⁩筻楦獲彴慮敭絽ਬ䌊湯楳敤㩲ⴊ䤠⁳慣敲瀠牥潳慮楬敺㽤ⴊ圠慨⁴潤獥愠瑦牥慣敲氠潯⁫楬敫ਿ‭潈⁷獩洠湥慴⁬敨污桴猠灵潰瑲摥ਿ圊⁥慣⁮慴歬琠牨畯桧琠楨⁳牰癩瑡汥⹹ਊ牐浩牡⁹呃㩁䌠污⁬㠨㘶 ㌳ⴰ㐹㤴ਊ胢ₔ慍慹删ਮ摁業獳潩獮匠数楣污獩ⱴ删湥楡獳湡散删捥癯牥੹㠨㘶 ㌳ⴰ㐹㤴唊獮扵捳楲敢›汛湩嵫ਊ⌣‣浅楡⁬″䐨祡㘠਩畓橢捥⁴㩁䰠癥汥⁳景挠牡ⱥ攠灸慬湩摥匊扵敪瑣䈠›敄潴⁸獶‮湩慰楴湥⁴獶‮畯灴瑡敩瑮ਊ楈笠晻物瑳湟浡絥ⱽਊ敄潴⁸瑳扡汩穩獥琠敨戠摯⹹删獥摩湥楴污琠敲瑡敭瑮猠灵潰瑲⁳敤灥牥爠捥癯牥⹹传瑵慰楴湥⁴慣敲瀠潲楶敤⁳瑳畲瑣牵⁥湡⁤汦硥扩汩瑩⹹圠⁥慣⁮敨灬挠慬楲祦琠敨猠晡獥⁴灯楴湯ਮ倊楲慭祲䌠䅔›慃汬⠠㘸⤶㌠〳㤭㐴ਹ钀䴠祡⁡⹒䄊浤獩楳湯⁳灓捥慩楬瑳‬敒慮獩慳据⁥敒潣敶祲⠊㘸⤶㌠〳㤭㐴ਹ湕畳獢牣扩㩥嬠楬歮੝⌊⌣䔠慭汩㐠⠠慄⁹〱਩畓橢捥⁴㩁䠠汥楰杮猠浯潥敮礠畯氠癯੥畓橢捥⁴㩂䄠瀠楲慶整‬畳灰牯楴敶挠湯敶獲瑡潩੮䠊⁩筻楦獲彴慮敭絽ਬ䤊⁦潹馀敲猠敥楫杮栠汥⁰潦⁲潳敭湯⁥潹⁵潬敶‬敷胢犙⁥敨敲琠⁯景敦⁲畧摩湡散眠瑩潨瑵瀠敲獳牵⹥ਊ牐浩牡⁹呃㩁䌠污⁬㠨㘶 ㌳ⴰ㐹㤴ਊ胢ₔ慍慹删ਮ摁業獳潩獮匠数楣污獩ⱴ删湥楡獳湡散删捥癯牥੹㠨㘶 ㌳ⴰ㐹㤴唊獮扵捳楲敢›汛湩嵫ਊ⌣‣浅楡⁬‵䐨祡ㄠ⤴匊扵敪瑣䄠›桔獩氠湩⁥獩漠数⁮桷湥礠畯渠敥⁤瑩匊扵敪瑣䈠›牐癩瑡⁥畳灰牯ⱴ愠祮楴敭ਊ楈笠晻物瑳湟浡絥ⱽਊ桗湥礠畯胢犙⁥敲摡ⱹ挠污⁬㠨㘶 ㌳ⴰ㐹㤴映牯愠挠湯楦敤瑮慩⁬潣癮牥慳楴湯ਮ钀䴠祡⁡⹒䄊浤獩楳湯⁳灓捥慩楬瑳‬敒慮獩慳据⁥敒潣敶祲⠊㘸⤶㌠〳㤭㐴ਹ湕畳獢牣扩㩥嬠楬歮੝䌊潲獳琭敩⁲獥慣慬楴湯਺‭潈⁴敬摡⁳桷⁯潤馀⁴潣癮牥⁴湩㜠搠祡⁳潲汬椠瑮⁯慗浲愠⁴浅楡⁬⸲ⴊ圠牡⁭敬摡⁳桷⁯潤馀⁴湥慧敧椠⁮㐱搠祡⁳潲汬椠瑮⁯潃摬愠⁴浅楡⁬⸳਍
+﻿# Renaissance Recovery - Email Nurture Sequences
+
+Sender recommendation: Maya R., Admissions Specialist
+Phone in footer: (866) 330-9449
+
+## HOT LEAD - "Crisis to Commitment"
+
+### Email 1 (Immediate)
+Subject A: Your confidential assessment results
+Subject B: A clear, private next step
+
+Hi {{first_name}},
+
+Thank you for completing the confidential assessment. Based on your responses, a private call is the best next step to clarify the safest level of care and timeline.
+
+Primary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Confidential admissions. Individual results may vary.
+Unsubscribe: [link]
+
+### Email 2 (4 hours later)
+Subject A: What happens after you call
+Subject B: A calm first step
+
+Hi {{first_name}},
+
+If you call today, we will listen, clarify options (detox, residential, outpatient), and outline next steps. No pressure.
+
+Primary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 3 (Day 2)
+Subject A: Cost and insurance clarity
+Subject B: Practical details, privately handled
+
+Hi {{first_name}},
+
+We will verify insurance where possible and explain private pay options clearly and discreetly.
+
+Primary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 4 (Day 4)
+Subject A: What treatment can feel like
+Subject B: A guided, supportive process
+
+Hi {{first_name}},
+
+Many people feel uncertain about treatment. A private call can clarify what to expect and how we support recovery.
+
+Primary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 5 (Day 7)
+Subject A: We are here when you are ready
+Subject B: Your private line is open
+
+Hi {{first_name}},
+
+If you are not ready today, that is okay. We will be here when the time is right.
+
+Primary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+## WARM LEAD - "Research to Readiness"
+
+### Email 1 (Immediate)
+Subject A: Your results and next steps
+Subject B: Your confidential guide is here
+
+Hi {{first_name}},
+
+Here is your confidential guide and a short overview of what your results mean. We provide compassionate, evidence based care tailored to each individual.
+
+Primary CTA: Schedule a Private Assessment Call
+Secondary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 2 (Day 2)
+Subject A: What makes Renaissance Recovery different
+Subject B: A calm, supportive environment
+
+Hi {{first_name}},
+
+Our approach combines evidence based treatment with a supportive, compassionate environment. We will help you understand the right level of care.
+
+Primary CTA: Schedule a Private Assessment Call
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 3 (Day 4)
+Subject A: A typical experience, step by step
+Subject B: What to expect
+
+Hi {{first_name}},
+
+From confidential intake to ongoing care planning, we focus on clarity and support at every step.
+
+Primary CTA: Schedule a Private Assessment Call
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 4 (Day 7)
+Subject A: Investment and insurance
+Subject B: Clear information, no pressure
+
+Hi {{first_name}},
+
+We will verify insurance and walk through options in a simple, private call.
+
+Primary CTA: Schedule a Private Assessment Call
+Secondary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 5 (Day 10)
+Subject A: Two simple next steps
+Subject B: Call or reply, your choice
+
+Hi {{first_name}},
+
+If you are ready, call (866) 330-9449 or reply with a time for a confidential call.
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+## COLD LEAD - "Education to Engagement"
+
+### Email 1 (Immediate)
+Subject A: Your confidential guide
+Subject B: A calm first step
+
+Hi {{first_name}},
+
+Here is your confidential guide outlining treatment options in a clear, simple way.
+
+Primary CTA: Download the Guide
+Secondary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 2 (Day 3)
+Subject A: How to evaluate treatment options
+Subject B: Questions to ask before you decide
+
+Hi {{first_name}},
+
+Consider:
+- Is care personalized?
+- What does aftercare look like?
+- How is mental health supported?
+
+We can talk through this privately.
+
+Primary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 3 (Day 6)
+Subject A: Levels of care, explained
+Subject B: Detox vs inpatient vs outpatient
+
+Hi {{first_name}},
+
+Detox stabilizes the body. Residential treatment supports deeper recovery. Outpatient care provides structure and flexibility. We can help clarify the safest option.
+
+Primary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 4 (Day 10)
+Subject A: Helping someone you love
+Subject B: A private, supportive conversation
+
+Hi {{first_name}},
+
+If you are seeking help for someone you love, we are here to offer guidance without pressure.
+
+Primary CTA: Call (866) 330-9449
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+### Email 5 (Day 14)
+Subject A: This line is open when you need it
+Subject B: Private support, anytime
+
+Hi {{first_name}},
+
+When you are ready, call (866) 330-9449 for a confidential conversation.
+
+- Maya R.
+Admissions Specialist, Renaissance Recovery
+(866) 330-9449
+Unsubscribe: [link]
+
+Cross tier escalation:
+- Hot leads who do not convert in 7 days roll into Warm at Email 2.
+- Warm leads who do not engage in 14 days roll into Cold at Email 3.
