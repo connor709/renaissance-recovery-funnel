@@ -1,90 +1,90 @@
-# Renaissance Recovery — Ad Concepts (10)
+# Renaissance Recovery â€” Ad Concepts (10)
 
-Healthcare compliance: avoid personal attributes, diagnosis claims, guarantees, or shame. No PHI. Include “individual results may vary” where testimonials implied.
+Healthcare compliance: avoid personal attributes, diagnosis claims, guarantees, or shame. No PHI. Include â€œindividual results may varyâ€ where testimonials implied.
 
 ## Quiz Funnel Ads (5)
 
-1) **“Confidential Treatment Assessment”**
+1) **â€œConfidential Treatment Assessmentâ€**
 - Visual: Facility image with coral overlay and logo.
-- Primary Text: “A private way to understand treatment options.”
-- Image Text: “CONFIDENTIAL ASSESSMENT” / “2–3 MINUTES”
-- Headline: “Start a Private Assessment”
-- Description: “Clear next steps.”
-- CTA: “Learn More”
+- Primary Text: â€œA private way to understand treatment options.â€
+- Image Text: â€œCONFIDENTIAL ASSESSMENTâ€ / â€œ2â€“3 MINUTESâ€
+- Headline: â€œStart a Private Assessmentâ€
+- Description: â€œClear next steps.â€
+- CTA: â€œLearn Moreâ€
 
-2) **“Accredited Care”**
+2) **â€œAccredited Careâ€**
 - Visual: Joint Commission badge + clean text card.
-- Primary Text: “Accredited care with compassionate support.”
-- Image Text: “ACCREDITED CARE”
-- Headline: “Confidential Assessment”
-- Description: “No pressure.”
-- CTA: “Get Started”
+- Primary Text: â€œAccredited care with compassionate support.â€
+- Image Text: â€œACCREDITED CAREâ€
+- Headline: â€œConfidential Assessmentâ€
+- Description: â€œNo pressure.â€
+- CTA: â€œGet Startedâ€
 
-3) **“Family Guidance”**
+3) **â€œFamily Guidanceâ€**
 - Visual: Soft background with text + warm accent.
-- Primary Text: “For families seeking clear, private guidance.”
-- Image Text: “A CALM FIRST STEP”
-- Headline: “Take the Assessment”
-- Description: “Confidential.”
-- CTA: “Learn More”
+- Primary Text: â€œFor families seeking clear, private guidance.â€
+- Image Text: â€œA CALM FIRST STEPâ€
+- Headline: â€œTake the Assessmentâ€
+- Description: â€œConfidential.â€
+- CTA: â€œLearn Moreâ€
 
-4) **“Detox to Recovery”**
+4) **â€œDetox to Recoveryâ€**
 - Visual: Simple timeline graphic.
-- Primary Text: “From detox to ongoing support, we help plan what’s next.”
-- Image Text: “DETOX ? TREATMENT ? SUPPORT”
-- Headline: “Explore Options”
-- Description: “Private assessment available.”
-- CTA: “Learn More”
+- Primary Text: â€œFrom detox to ongoing support, we help plan whatâ€™s next.â€
+- Image Text: â€œDETOX ? TREATMENT ? SUPPORTâ€
+- Headline: â€œExplore Optionsâ€
+- Description: â€œPrivate assessment available.â€
+- CTA: â€œLearn Moreâ€
 
-5) **“Private Admissions”**
+5) **â€œPrivate Admissionsâ€**
 - Visual: Minimalist dark background with lock icon.
-- Primary Text: “Admissions handled discreetly, with clear next steps.”
-- Image Text: “PRIVATE ADMISSIONS”
-- Headline: “Call for a Confidential Intake”
-- Description: “We’re here to help.”
-- CTA: “Call Now”
+- Primary Text: â€œAdmissions handled discreetly, with clear next steps.â€
+- Image Text: â€œPRIVATE ADMISSIONSâ€
+- Headline: â€œCall for a Confidential Intakeâ€
+- Description: â€œWeâ€™re here to help.â€
+- CTA: â€œCall Nowâ€
 
 ## General Service/Brand Ads (5)
 
-6) **“Renaissance Recovery”**
+6) **â€œRenaissance Recoveryâ€**
 - Visual: Facility image with wordmark.
-- Primary Text: “Compassionate, evidence-based treatment in a supportive environment.”
-- Image Text: “RENAISSANCE RECOVERY”
-- Headline: “Learn About Our Approach”
-- Description: “Confidential.”
-- CTA: “Learn More”
+- Primary Text: â€œCompassionate, evidence-based treatment in a supportive environment.â€
+- Image Text: â€œRENAISSANCE RECOVERYâ€
+- Headline: â€œLearn About Our Approachâ€
+- Description: â€œConfidential.â€
+- CTA: â€œLearn Moreâ€
 
-7) **“Personalized Care Plans”**
+7) **â€œPersonalized Care Plansâ€**
 - Visual: Grid layout with icons and coral accents.
-- Primary Text: “Treatment plans tailored to each individual’s needs.”
-- Image Text: “PERSONALIZED CARE”
-- Headline: “Explore Programs”
-- Description: “Private admissions.”
-- CTA: “Learn More”
+- Primary Text: â€œTreatment plans tailored to each individualâ€™s needs.â€
+- Image Text: â€œPERSONALIZED CAREâ€
+- Headline: â€œExplore Programsâ€
+- Description: â€œPrivate admissions.â€
+- CTA: â€œLearn Moreâ€
 
-8) **“Support After Detox”**
+8) **â€œSupport After Detoxâ€**
 - Visual: Pathway graphic.
-- Primary Text: “Detox is step one. Ongoing support matters.”
-- Image Text: “LONG-TERM SUPPORT”
-- Headline: “See Treatment Options”
-- Description: “Confidential.”
-- CTA: “Learn More”
+- Primary Text: â€œDetox is step one. Ongoing support matters.â€
+- Image Text: â€œLONG-TERM SUPPORTâ€
+- Headline: â€œSee Treatment Optionsâ€
+- Description: â€œConfidential.â€
+- CTA: â€œLearn Moreâ€
 
-9) **“Compassionate Team”**
+9) **â€œCompassionate Teamâ€**
 - Visual: Warm, minimal typography on light background.
-- Primary Text: “A supportive team focused on respectful, compassionate care.”
-- Image Text: “COMPASSIONATE CARE”
-- Headline: “Meet the Team”
-- Description: “Learn more.”
-- CTA: “Learn More”
+- Primary Text: â€œA supportive team focused on respectful, compassionate care.â€
+- Image Text: â€œCOMPASSIONATE CAREâ€
+- Headline: â€œMeet the Teamâ€
+- Description: â€œLearn more.â€
+- CTA: â€œLearn Moreâ€
 
-10) **“Private Family Guidance”**
+10) **â€œPrivate Family Guidanceâ€**
 - Visual: Text-only ad with coral headline and phone CTA.
-- Primary Text: “Guidance for families exploring treatment options.”
-- Image Text: “PRIVATE FAMILY GUIDANCE”
-- Headline: “Speak with Admissions”
-- Description: “No pressure.”
-- CTA: “Contact Us”
+- Primary Text: â€œGuidance for families exploring treatment options.â€
+- Image Text: â€œPRIVATE FAMILY GUIDANCEâ€
+- Headline: â€œSpeak with Admissionsâ€
+- Description: â€œNo pressure.â€
+- CTA: â€œContact Usâ€
 
 ### Format Specs
 - 1080x1080, 1080x1920, 1200x628
@@ -94,12 +94,12 @@ Healthcare compliance: avoid personal attributes, diagnosis claims, guarantees, 
 - Prohibited: health condition targeting, recovery group membership, or inferred sensitive traits.
 
 ### Retargeting Matrix
-- Quiz visitors (no lead): show Quiz Ads 1–3
+- Quiz visitors (no lead): show Quiz Ads 1â€“3
 - Lead submitted, no call: show Ads 2, 5
-- Warm engagement: show Ads 6–9
+- Warm engagement: show Ads 6â€“9
 
 ### Pre-launch Compliance Checklist
-- No “you + condition” language
+- No â€œyou + conditionâ€ language
 - No implied diagnosis
 - No guarantees or cure language
 - Privacy/consent on landing page

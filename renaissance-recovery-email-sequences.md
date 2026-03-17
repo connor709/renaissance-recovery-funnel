@@ -1,9 +1,9 @@
-# Renaissance Recovery ó Email Nurture Sequences
+# Renaissance Recovery ‚Äî Email Nurture Sequences
 
 Sender recommendation: Maya R., Admissions Specialist
 Phone in footer: (866) 330-9449
 
-## HOT LEAD ó ìCrisis to Commitmentî
+## HOT LEAD ‚Äî ‚ÄúCrisis to Commitment‚Äù
 
 ### Email 1 (Immediate)
 Subject A: Your confidential assessment results
@@ -15,7 +15,7 @@ Thank you for completing the confidential assessment. Based on your responses, a
 
 Primary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Confidential admissions. Individual results may vary.
@@ -27,11 +27,11 @@ Subject B: A calm first step
 
 Hi {{first_name}},
 
-If you call today, weíll listen, clarify options (detox, residential, outpatient), and outline next stepsóno pressure.
+If you call today, we‚Äôll listen, clarify options (detox, residential, outpatient), and outline next steps‚Äîno pressure.
 
 Primary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
@@ -42,11 +42,11 @@ Subject B: Practical details, privately handled
 
 Hi {{first_name}},
 
-Weíll verify insurance where possible and explain private-pay options clearly and discreetly.
+We‚Äôll verify insurance where possible and explain private-pay options clearly and discreetly.
 
 Primary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
@@ -61,27 +61,27 @@ Many people feel uncertain about treatment. A private call can clarify what to e
 
 Primary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
 
 ### Email 5 (Day 7)
-Subject A: Weíre here when youíre ready
+Subject A: We‚Äôre here when you‚Äôre ready
 Subject B: Your private line is open
 
 Hi {{first_name}},
 
-If youíre not ready today, thatís okay. Weíll be here when the time is right.
+If you‚Äôre not ready today, that‚Äôs okay. We‚Äôll be here when the time is right.
 
 Primary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
 
-## WARM LEAD ó ìResearch to Readinessî
+## WARM LEAD ‚Äî ‚ÄúResearch to Readiness‚Äù
 
 ### Email 1 (Immediate)
 Subject A: Your results + next steps
@@ -89,12 +89,12 @@ Subject B: Your confidential guide is here
 
 Hi {{first_name}},
 
-Hereís your confidential guide and a short overview of what your results mean. We provide compassionate, evidence-based care tailored to each individual.
+Here‚Äôs your confidential guide and a short overview of what your results mean. We provide compassionate, evidence-based care tailored to each individual.
 
 Primary CTA: Schedule a Private Assessment Call
 Secondary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
@@ -105,11 +105,11 @@ Subject B: A calm, supportive environment
 
 Hi {{first_name}},
 
-Our approach combines evidence-based treatment with a supportive, compassionate environment. Weíll help you understand the right level of care.
+Our approach combines evidence-based treatment with a supportive, compassionate environment. We‚Äôll help you understand the right level of care.
 
 Primary CTA: Schedule a Private Assessment Call
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
@@ -124,7 +124,7 @@ From confidential intake to ongoing care planning, we focus on clarity and suppo
 
 Primary CTA: Schedule a Private Assessment Call
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
@@ -135,30 +135,30 @@ Subject B: Clear information, no pressure
 
 Hi {{first_name}},
 
-Weíll verify insurance and walk through options in a simple, private call.
+We‚Äôll verify insurance and walk through options in a simple, private call.
 
 Primary CTA: Schedule a Private Assessment Call
 Secondary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
 
 ### Email 5 (Day 10)
 Subject A: Two simple next steps
-Subject B: Call or replyóyour choice
+Subject B: Call or reply‚Äîyour choice
 
 Hi {{first_name}},
 
-If youíre ready, call (866) 330-9449 or reply with a time for a confidential call.
+If you‚Äôre ready, call (866) 330-9449 or reply with a time for a confidential call.
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
 
-## COLD LEAD ó ìEducation to Engagementî
+## COLD LEAD ‚Äî ‚ÄúEducation to Engagement‚Äù
 
 ### Email 1 (Immediate)
 Subject A: Your confidential guide
@@ -166,12 +166,12 @@ Subject B: A calm first step
 
 Hi {{first_name}},
 
-Hereís your confidential guide outlining treatment options in a clear, simple way.
+Here‚Äôs your confidential guide outlining treatment options in a clear, simple way.
 
 Primary CTA: Download the Guide
 Secondary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
@@ -191,7 +191,7 @@ We can talk through this privately.
 
 Primary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
@@ -206,7 +206,7 @@ Detox stabilizes the body. Residential treatment supports deeper recovery. Outpa
 
 Primary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
@@ -217,11 +217,11 @@ Subject B: A private, supportive conversation
 
 Hi {{first_name}},
 
-If youíre seeking help for someone you love, weíre here to offer guidance without pressure.
+If you‚Äôre seeking help for someone you love, we‚Äôre here to offer guidance without pressure.
 
 Primary CTA: Call (866) 330-9449
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
@@ -232,13 +232,13 @@ Subject B: Private support, anytime
 
 Hi {{first_name}},
 
-When youíre ready, call (866) 330-9449 for a confidential conversation.
+When you‚Äôre ready, call (866) 330-9449 for a confidential conversation.
 
-ó Maya R.
+‚Äî Maya R.
 Admissions Specialist, Renaissance Recovery
 (866) 330-9449
 Unsubscribe: [link]
 
 Cross-tier escalation:
-- Hot leads who donít convert in 7 days roll into Warm at Email 2.
-- Warm leads who donít engage in 14 days roll into Cold at Email 3.
+- Hot leads who don‚Äôt convert in 7 days roll into Warm at Email 2.
+- Warm leads who don‚Äôt engage in 14 days roll into Cold at Email 3.
